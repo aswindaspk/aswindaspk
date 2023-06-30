@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="21484987" data-share-method="host" data-aspect-ratio="1.77778" data-width="100%"><a href="https://tenor.com/view/bh187-family-guy-peter-griffin-stewie-stewie-griffin-gif-21484987">Bh187 Family Guy GIF</a>from <a href="https://tenor.com/search/bh187-gifs">Bh187 GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![bh187-family-guy](https://github.com/aswindaspk/aswindaspk/assets/89696235/494c17e7-ce61-4e96-991a-e325893538cc)
